@@ -1,4 +1,4 @@
-## Privacy Policy Phim HD Free
+## Privacy Policy Xem Phim HD Free
 We built the "Xem Phim HD" app as a Free app. This SERVICE is provided by this app  at no cost and is intended for use as is.
 
 This page is used to inform tha app users regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
