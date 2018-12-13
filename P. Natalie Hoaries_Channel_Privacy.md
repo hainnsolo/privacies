@@ -1,7 +1,7 @@
 ## Privacy Policy P. Natalie Hoaries Youtube Channel
-We built the " P.Natalie Hoaries Youtube " Channel is Free . This SERVICE is provided by this app  at no cost and is intended for use as is.
+We built the " P.Natalie Hoaries Youtube " Channel is Free . This SERVICE is provided by this channel  at no cost and is intended for use as is.
 
-This page is used to inform tha app users regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
+This page is used to inform tha channel users regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
 If you choose to use my Service, then you agree to the collection and use of information in relation to this policy. The Personal Information that I collect is used for providing and improving the Service. I will not use or share your information with anyone except as described in this Privacy Policy.
 
@@ -11,15 +11,15 @@ Information Collection and Use:
 
 For a better experience, while using our Service, I may require you to provide us with certain personally identifiable information. The information that I request is retained on your device and is not collected by me in any way
 
-The app does use third party services that may collect information used to identify you.
+The channel does use third party services that may collect information used to identify you.
 
-Link to privacy policy of third party service providers used by the app
+Link to privacy policy of third party service providers used by the channel
 
 Cookies:
 
 Cookies are files with small amount of data that is commonly used an anonymous unique identifier. These are sent to your browser from the website that you visit and are stored on your device internal memory.
 
-This Service does not use these “cookies” explicitly. However, the app may use third party code and libraries that use “cookies” to collection information and to improve their services. You have the option to either accept or refuse these cookies and know when a cookie is being sent to your device. If you choose to refuse our cookies, you may not be able to use some portions of this Service.
+This Service does not use these “cookies” explicitly. However, the channel may use third party code and libraries that use “cookies” to collection information and to improve their services. You have the option to either accept or refuse these cookies and know when a cookie is being sent to your device. If you choose to refuse our cookies, you may not be able to use some portions of this Service.
 
 Service Providers:
 
